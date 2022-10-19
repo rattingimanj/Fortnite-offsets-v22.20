@@ -1,2 +1,3 @@
 # Fortnite-offsets-v22.20
-Newest Fortnite offsets
+
+If you need other offsets dm me imanj#7944
